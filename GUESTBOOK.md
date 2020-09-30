@@ -28,3 +28,6 @@ i am the people's g
 
 ### Jay Ong
 G'day all!! Hope you guys have some long arms so you can carry me through this course!!
+
+### Martin Lee
+Nice to meet you all! I love pepperoni pizzas and chocolate!!
